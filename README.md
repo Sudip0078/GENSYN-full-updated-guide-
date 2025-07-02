@@ -1,1 +1,0 @@
-# GENSYN-full-updated-guide-
